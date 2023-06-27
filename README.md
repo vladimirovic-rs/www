@@ -1,5 +1,3 @@
-# KIRILL KOVALCHUK PR NOVI SAD
-
 Dobrodošli na službenu web stranicu kompanije **KIRILL KOVALCHUK PR NOVI SAD**. Naša kompanija pruža vrhunske usluge razvoja softvera, a mi smo ovdje da vam pomognemo ostvariti vaše digitalne ambicije.
 
 ## O nama
