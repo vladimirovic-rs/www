@@ -17,7 +17,7 @@ Naša strast je stvaranje inovativnih i pouzdanih softverskih rješenja koja vam
 
 Ako imate pitanja ili želite zatražiti naše usluge, slobodno nas kontaktirajte putem telefona ili posjetite našu adresu:
 
-- **Telefon**: 062 938 30 88
+- **Telefon ili Viber**: 062 938 30 88
 - **Email**: kiril (at) vladimirovic (tačka) rs
 - **Kompanija**: KIRILL KOVALCHUK PR NOVI SAD
 - **Adresa**: ul.Zmaj Jovina 26, kancelarija 132, 21000, Novi Sad, Srbija
