@@ -20,7 +20,7 @@ Ako imate pitanja ili želite zatražiti naše usluge, slobodno nas kontaktirajt
 - **Telefon ili Viber**: 062 938 30 88
 - **Email**: kiril (at) vladimirovic (tačka) rs
 - **Kompanija**: KIRILL KOVALCHUK PR NOVI SAD
-- **Adresa**: ul.Zmaj Jovina 26, kancelarija 132, 21000, Novi Sad, Srbija
+- **Adresa**: ul.Zmaj Jovina 26, kancelarija 213, 21000, Novi Sad, Srbija
 - **PIB**: 113340832
 - **Matični broj**: 66753832
 - **Broj računa**: 265-1610310005854-16
